@@ -1,2 +1,3 @@
 # yixinwu
-Yixin (Andrea) Wu’s Portfolio
+
+Welcome! This website belongs to Yixin (Andrea) Wu, an Adelaide University student. She is studying Teaching, Psychology and Chinese, and enjoying them. She is passionate about exploring the world, therefore she is keen on volunteering and joins social activities. She has volunteered for her high school and various non-for-profit organizations. Meanwhile she has joined high school band as a flute player and looks foward to doing so at University. In additional, she loves reading drawing, hiking and playing the flute. She looks for opportunities of learning and wants to hear your great thoughts, please contact her for a conversation.
